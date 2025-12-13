@@ -1,6 +1,20 @@
 # 赔钱机场官网地址
 
-最新地址：[赔钱机场.com](https://赔钱.com/#/register?code=izxleJPI)
+最新地址：
+
+[赔钱.com](https://赔钱.com/register?code=izxleJPI) （可以直连）
+
+[dash.pqjc.site](https://dash.pqjc.site/#/register?code=izxleJPI) （可以直连）
+
+[www.赔钱机场.site](www.赔钱机场.site/register?code=izxleJPI)  （推荐）
+
+https://dash.赔钱机场.site （推荐）
+
+https://赔钱机场.com (需要代理)
+
+https://赔钱机场.site (需要代理)
+
+
 
 ## 赔钱机场介绍
 
